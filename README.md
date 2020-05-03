@@ -1,1 +1,0 @@
-# hannshin-tigers
